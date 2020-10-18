@@ -1,1 +1,0 @@
-# skd-personal-site
